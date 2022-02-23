@@ -1,3 +1,5 @@
-# beardkings
-first of many
-i love movies, football and listning to audiobooks
+# BEARD KINGS
+
+First of many
+
+I love :movies:, :football: and :audiobooks:
